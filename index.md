@@ -3,7 +3,7 @@
 This website will tell you everything you need to know about the Lord of the Rings characters.
 
 ## Mr. Frodo Baggins
-### main charector
+> main charector
 
 frodo is the one who is given the mision to defeat souron (main bad guy), he has a long journey with many many obstacles. frodo has 
 the one ring (dangourous item) and olso has to destroy it but he's just a little hobbit (small people that know nothing about 
