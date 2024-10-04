@@ -13,4 +13,10 @@ taken over by the ring) was folowing them
 
 ## samwis gamgee 
 
-samwis is olso a hobit and gives frodo helpful advice he sow golum following them and knew golum was evil
+samwis is olso a hobit and gives frodo helpful advice he sow golum following them and knew golum was evil he toled frodo but
+frodo was getting taken by the ring so frodo didnt belive him so sam pleeted with frodo but still frodo didnt belive him
+sam gave up arguing sam stayed supporting frodo he would not let his best fraind fall he did not let frodo give up "I may not be 
+able to carry the ring frodo but I can carry you" is a famous quote sam sais piking up frodo and hoisting hin onto his back
+
+## golum
+
