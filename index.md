@@ -5,7 +5,7 @@ This website will tell you everything you need to know about the Lord of the Rin
 ## Mr. Frodo Baggins
 ### main charector
 
-frodo is the one hwo is given the mision to defiat souron (main bad guy), he has a long journy with many many obsticals. frodo has 
+frodo is the one who is given the mision to defeat souron (main bad guy), he has a long journey with many many obstacles. frodo has 
 the one ring (dangourous item) and olso has to destroy it but he's just a little hobbit (small people that know nothing about 
 war aganst souron) he journeys to mordor (souron and sourons armeys relm) and gose to mount doom (volcano were the ring was forged)
 he there has to destroy the ring throughout his journey he has a reliable helper and freind samwis gamgee but golum (hobbit 
@@ -26,4 +26,5 @@ his greed for the ring is more powerfull
 ## gandalf
 
 gandalf is a maia (a very strong person or wizzard) hwo starts out in the fellow ship (a group hwo sets out to destroy souron 
-but ends up in two groupes) he helpes the group that dosent go to moumt doom but still helpes 
+but ends up in two groupes) he helpes the group that dosent go to moumt doom but still helpes he dastracets souron from mount 
+doom he saves many pepole wen in battal
