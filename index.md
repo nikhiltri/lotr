@@ -18,5 +18,12 @@ frodo was getting taken by the ring so frodo didnt belive him so sam pleeted wit
 sam gave up arguing sam stayed supporting frodo he would not let his best fraind fall he did not let frodo give up "I may not be 
 able to carry the ring frodo but I can carry you" is a famous quote sam sais piking up frodo and hoisting hin onto his back
 
-## golum
+## golum/smeegol
 
+he got takenover by the ring but he used to be a hobbit we dont know much about golum he still has some smeegol in him but 
+his greed for the ring is more powerfull
+
+## gandalf
+
+gandalf is a maia (a very strong person or wizzard) hwo starts out in the fellow ship (a group hwo sets out to destroy souron 
+but ends up in two groupes) he helpes the group that dosent go to moumt doom but still helpes 
