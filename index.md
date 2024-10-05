@@ -25,6 +25,17 @@ his greed for the ring is more powerfull
 
 ## gandalf
 
-gandalf is a maia (a very strong person or wizzard) hwo starts out in the fellow ship (a group hwo sets out to destroy souron 
+gandalf is a maia (a very strong person or wizzard) who starts out in the fellow ship (a group hwo sets out to destroy souron 
 but ends up in two groupes) he helpes the group that dosent go to moumt doom but still helpes he dastracets souron from mount 
 doom he saves many pepole wen in battal
+
+## Gimli
+
+gimli is a dworf he is very armored and uses an ax in combat he is strong and helpes with getting through dwafen thengs he is
+a reliable helper wen seeking history aspecialy dwofen history 
+
+## legolas 
+
+legolas is an elf he is helpfull wen in battle he has a bow and 2 swords and slayes many orcs (sourons armys creatures) about 
+1,234 he is the masenger for elrond the elven king elrond and his queen galadrial
+
